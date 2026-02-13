@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rushil__15
-- 👀 I’m interested in ...chess and table tennis 
+- 👀 I’m interested in ...chess, table tennis and anime
 - 🌱 I’m currently learning ...ict
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... rushilsureja15@gmail.com
